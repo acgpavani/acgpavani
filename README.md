@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @acgpavani
+- 👀 I’m interested in art and biology
+- 🌱 I’m currently learning about birds and environmental education
+- 📫 How to reach me: e-mail ana.pavani@unesp.br
